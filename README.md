@@ -6,20 +6,21 @@ Whether you're writing blog posts, product reviews, informational guides, or aff
 
 ---
 
-## 🕒 Limited-Time Offer: Use Code `KOALAAI` to Get 15% Off
+## 🕒 Limited-Time Offer: Use Code `KOALAAI` to Get 15% Off monthly & 35% off on annual plans
 
-You can now unlock **15% off** any paid plan with this exclusive **Koala Writer** coupon code:
+You can now unlock up to **35% off** any paid plan with this exclusive **Koala Writer** coupon code:
 
 - 🔹 **Promo Code:** `KOALAAI`  
-- 🔹 **Discount:** 15% off your subscription  
+- 🔹 **Discount:** 15% off applies to **monthly plans**, but if you choose an **annual plan**, you get a **total of 35% off** (20% built-in annual discount + 15% extra with the coupon code). 
 - 🔹 **Redeem Here:**  
   👉 [**Click here to start writing with Koala Writer**](https://koala.sh/pricing?via=gthb) 👈  
 
 All you have to do is enter `KOALAAI` at checkout to instantly apply your discount.
 
+
 ---
 
-## 🧾 Backup Koala Writer Coupon Codes
+## 🧾 Backup/Alternative Koala Writer Coupon Codes:
 
 If `KOALAAI` doesn't work or expires, try these alternative codes:
 
