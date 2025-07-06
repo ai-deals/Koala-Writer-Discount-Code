@@ -1,4 +1,4 @@
-## 🔖 Save 15% on Koala Writer with Discount Code `KOALAAI`
+## 🔖 Save Up to 35% on Koala Writer with Discount Code `KOALAAI`
 
 Are you looking for an AI writing assistant that delivers high-quality, SEO-ready content faster than ever? **Koala Writer** is a powerful AI content tool designed to help content creators, bloggers, marketers, and business owners produce well-optimized long-form articles with minimal effort.
 
