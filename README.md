@@ -32,6 +32,9 @@ Use these codes the same way at checkout to claim your savings!
 
 ---
 
+![Koala Writer Discount](https://raw.githubusercontent.com/ai-deals/Koala-Writer-Discount-Code/0121547ea6093f48f883c534dac7989b38ed4835/koala-writer.png)
+
+
 ## ✅ What is Koala Writer?
 
 **Koala Writer** is an AI-powered content generation tool built specifically for SEO and blogging. It simplifies the content creation process while giving users full control over tone, structure, and keyword targeting.
