@@ -23,7 +23,7 @@ All you have to do is enter `KOALAAI` at checkout to instantly apply your discou
 ## 🧾 Backup/Alternative Koala Writer Coupon Codes:
 
 If `KOALAAI` doesn't work or expires, try these alternative codes:
-
+- '**KOALADISCOUNT**'
 - 🔁 **BESTDEAL** – May unlock the best available discount based on your plan
 - 🎯 **ANNUAL35** – 35% off on annual subscriptions (limited-time offer)
 
